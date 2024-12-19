@@ -1,12 +1,5 @@
-# 🀢  LLIK_LLA         🀥  x‖85         🀐  erasmus         🀨  Watson
 
 
-
-
-
-# 🃟
-Interested in learning more about Software Development
-# 🂿
 contact info
 🟩 [linktree](https://linktr.ee/CD_Watson)
 
